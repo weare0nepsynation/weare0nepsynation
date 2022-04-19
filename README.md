@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @weare0nepsynation
 - 👀 I’m interested in people
-- 🌱 I’m currently learning business development
+- 🌱 I’m currently working on Development and Designing using several technologies
 - 💞️ I’m looking to collaborate on link building
 - 📫 How to reach me privacy.chamber@gmail.com
 
